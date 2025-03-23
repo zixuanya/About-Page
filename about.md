@@ -16,4 +16,14 @@
 
 擅长玩玩bgp，尽管还没有一个真正属于自己的asn...但是咱有dn42，在内网玩玩或者恶搞邻居也是可以的（bushi
 
-总之咱还是全能的啦
+总之咱还是*全能*的啦
+
+# 联系方式
+
+咱的 Telegram: [telegram](linmontfurry.t.me)
+
+Telegram号死了的话页面来不及更新可以用这个NFT用户名：[telegram](bvhsh.t.me)
+
+Google Voice：+1 520 333 7988
+
+email：admin@furry.blue
